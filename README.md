@@ -21,7 +21,7 @@
 
 ## Contact Information
 - **Email:** adityaaghaw@gmail.com  
-- **LinkedIn:** [Aditya Aghaw](https://www.linkedin.com/in/aditya-aghaw-787b06343)  
+- **LinkedIn:** [Aditya Aghaw](https://www.linkedin.com/in/aditya-aghaw-7133a1347)  
 - **Address:** Flat No. 5, Pula Apartment, Vivek Nagar, Nanded, Maharashtra  
 
 ## Education
